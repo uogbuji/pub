@@ -6,6 +6,7 @@
 * [Boulder Pickup Soccer | Facebook](https://www.facebook.com/groups/boulderpickupsoccer/)
 * [Denver Pickup Soccer | Facebook](https://www.facebook.com/groups/denverpickupsoccer/) - Private, but I think they add anyone who requests
 * ~~[Colorado Pickup Soccer](https://www.facebook.com/groups/948973449007876)~~ - Seems defunct ~~Private, but I think they add anyone who requests~~
+* * [Boulder and Denver Metro Pick-Up Soccer](https://www.meetup.com/boulder-denver-pick-up-soccer/)
 * [The Boulder Collective Soccer Club](https://www.meetup.com/Boulder-Soccer) [Have to join to see locations & game-on confirmations]
 * [Denver Soccer Meetup](http://www.meetup.com/DenverSoccer/) [Have to join to see locations & game-on confirmations]
 * [Broomfield / Westminster Pickup Soccer](https://www.facebook.com/groups/westypickupsoccer/) - a bit patchy, but a few bits, e.g. Sunday 5-6:30 pm coed pickup game behind Westminster Rec Ctr & attempt to set up women's only pickup in South Boulder

@@ -17,7 +17,8 @@
 
 * [Broomfield/Westminster Saturday morning](https://groups.google.com/g/saturday-morning-broomfield-pickup-soccer). Sign up for game-on confirmations—grass or turf
 * [Superior/Westminster weekday lunchtimes](https://chat.whatsapp.com/J1rirNE4MDlBb7EGdB005j) [see also on Google Groups](https://groups.google.com/forum/#!forum/broomfield-lunchtime-soccer). Sign up on WhatsApp for polls to get a count & confirmed game on. Weekdays at 12:30; grass or turf. FKA Broomfield weekday lunchtime soccer.
-* [Broomfield Commons Tues/Thurs evenings](https://groups.google.com/g/soccer-at-commons)—grass
+* Broomfield Commons Sun 10am/Tues 5pm—Private Facebook group you might need to search for
+* [Broomfield Commons Tues/Thurs evenings](https://groups.google.com/g/soccer-at-commons)—grass. Petered out completely for 2024
 * [Longmont / Left Hand Creek Park grass—Tuesday @ Noon (and sometimes Fridays)](https://groups.google.com/g/newlongmontsoccer)
 * [North Boulder Park (9th St and Balsam grass)—Mondays @ 5:30PM, April thru October, and occasionally outside that](https://groups.google.com/g/nobo-soccer)
 

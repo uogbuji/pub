@@ -5,13 +5,17 @@
 * [Boulder Soccer - Google Groups](https://groups.google.com/d/forum/boulder-noon-soccer) - East Boulder Rec: M, W, F lunchtimes. Sat & Sun mornings. North Boulder
 * [Boulder Pickup Soccer | Facebook](https://www.facebook.com/groups/boulderpickupsoccer/)
 * [Denver Pickup Soccer | Facebook](https://www.facebook.com/groups/denverpickupsoccer/) - Private, but I think they add anyone who requests
-* ~~[Colorado Pickup Soccer](https://www.facebook.com/groups/948973449007876)~~ - Page seems defunct, though I've heard it's still going: Weds evenings @ 5:30 & Saturday mornings at 11am; Broomfield Commons
 * * [Boulder and Denver Metro Pick-Up Soccer](https://www.meetup.com/boulder-denver-pick-up-soccer/)
 * [The Boulder Collective Soccer Club](https://www.meetup.com/Boulder-Soccer) [Have to join to see locations & game-on confirmations]
 * [Denver Soccer Meetup](http://www.meetup.com/DenverSoccer/) [Have to join to see locations & game-on confirmations]
 * [Broomfield / Westminster Pickup Soccer](https://www.facebook.com/groups/westypickupsoccer/) - a bit patchy, but a few bits, e.g. Sunday 5-6:30 pm coed pickup game behind Westminster Rec Ctr & attempt to set up women's only pickup in South Boulder
+* [Barebones Soccer](https://barebonessoccer.com/)
+  * Coed Monday nights, 5:30p at Superior Sports Stable
+  * Coed Saturday mornings 9:30a at Broomfield Commons
+  * Coed Tuesday nighta at 6p
+
+* ~~[Colorado Pickup Soccer](https://www.facebook.com/groups/948973449007876)~~ - Page seems defunct, though I've heard it's still going: Weds evenings @ 5:30 & Saturday mornings at 11am; Broomfield Commons
 * ~~[Boulder pick-up soccer open blog](http://bouldersoccer.wordpress.com/)~~ R.I.P. early 2023
-* Co-Ed 
 
 ## Regular drop-in, free to play groups
 

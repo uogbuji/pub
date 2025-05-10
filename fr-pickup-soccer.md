@@ -9,7 +9,8 @@
 * [The Boulder Collective Soccer Club](https://www.meetup.com/Boulder-Soccer) [Have to join to see locations & game-on confirmations]
 * [Denver Soccer Meetup](http://www.meetup.com/DenverSoccer/) [Have to join to see locations & game-on confirmations]
 * [Broomfield / Westminster Pickup Soccer](https://www.facebook.com/groups/westypickupsoccer/) - a bit patchy, but a few bits, e.g. Sunday 5-6:30 pm coed pickup game behind Westminster Rec Ctr & attempt to set up women's only pickup in South Boulder
-* [Denver Washington Park Pick-Up Soccer](https://www.meetup.com/denversoccer/events/tdbjptyhcfbnc/) - Sundays 10am-Noon. "The location is just west of the maintenance building and south of the Rec center"
+* [Denver Washington Park Pick-Up Soccer](https://www.meetup.com/denversoccer//) - Sundays 10am-Noon. "The location is just west of the maintenance building and south of the Rec center"
+  * Also: [Veterans Park Pick-Up Soccer](https://www.meetup.com/boulder-denver-pick-up-soccer/) Weds 5:30-7:30 PM, Veterans Park (Washington Park Area)
 * [Barebones Soccer](https://barebonessoccer.com/)
   * Coed Monday nights, 5:30p at Superior Sports Stable
   * Coed Saturday mornings 9:30a at Broomfield Commons

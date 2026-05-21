@@ -26,7 +26,7 @@
 * Broomfield Commons Sun 10am/Tues 5pm—Private Facebook group you might need to search for
 * [Broomfield Commons Tues/Thurs evenings](https://groups.google.com/g/soccer-at-commons)—grass. Petered out completely for 2024
 * [Longmont / Left Hand Creek Park grass—Tuesday @ Noon (and sometimes Fridays)](https://groups.google.com/g/newlongmontsoccer)
-* [North Boulder Park (9th St and Balsam grass)—Mondays @ 5:30PM, April thru October, and occasionally outside that](https://groups.google.com/g/nobo-soccer)
+* ~~[North Boulder Park (9th St and Balsam grass)—Mondays @ 5:30PM, April thru October, and occasionally outside that](https://groups.google.com/g/nobo-soccer)~~. No activity since 2024, but you do stil often see people playing pickup at NoBo Park
 
 ## Venues
 
@@ -36,4 +36,6 @@
 * ~~[Simply Soccer](https://simplysoccer.co/)~~ - Site down
 * [Louisville Recreation Center "Turf Gym"](https://www.louisvilleco.gov/living-in-louisville/recreation-senior-center/programs-activities/turf-gym)
 
-See also: [Soccer Fields of Colorado](http://www.sportsfieldsusa.com/fields/soccer/colorado)
+See also:
+* [Soccer Fields of Colorado](http://www.sportsfieldsusa.com/fields/soccer/colorado)
+* [Adult soccer across the Front Range offers leagues, pickup and community](https://www.denverpost.com/2026/04/08/adult-soccer-leagues-denver-boulder/) (paywalled Denver Post article)

@@ -28,16 +28,19 @@
 * [Superior/Westminster weekday lunchtimes](https://chat.whatsapp.com/J1rirNE4MDlBb7EGdB005j) [see also on Google Groups](https://groups.google.com/forum/#!forum/broomfield-lunchtime-soccer). Sign up on WhatsApp for polls to get a count & confirmed game on. Weekdays at 12:30; grass or turf. FKA Broomfield weekday lunchtime soccer.
 * [NorthGlenn Thursday Evening & Sunday Morning/Evenings Pickup Soccer](https://web.groupme.com/join_event/71778605/b49f8fa742104a8da2f0aa69df0b0478/KIQSnCmp) - 7:00 pm – 8:45 pm - Northwest Open Space (2100 W 112th Ave, Northglenn, CO 80234). You might have to sniff around the GroupMe space. [Here's another link hosted by Lori Alcott](https://web.groupme.com/join_event/71778605/e0ae8e03e99f4f5f92b187ca55870580/KIQSnCmp).
 * Broomfield Commons Sun 10am/Tues 5pm—Private Facebook group you might need to search for
-* [Broomfield Commons Tues/Thurs evenings](https://groups.google.com/g/soccer-at-commons)—grass. Petered out completely for 2024
+* ~~[Broomfield Commons Tues/Thurs evenings](https://groups.google.com/g/soccer-at-commons)—grass. Petered out completely for 2024~~
 * [Longmont / Left Hand Creek Park grass—Tuesday @ Noon (and sometimes Fridays)](https://groups.google.com/g/newlongmontsoccer)
 * [Sunday Morning Wheat Ridge Pick-Up Soccer](https://www.meetup.com/boulder-denver-pick-up-soccer/events/dfzdmtyjckbhb/)
 * ~~[North Boulder Park (9th St and Balsam grass)—Mondays @ 5:30PM, April thru October, and occasionally outside that](https://groups.google.com/g/nobo-soccer)~~. No activity since 2024, but you do stil often see people playing pickup at NoBo Park
+* [Street Soccer Denver at Skyline Park (15th & Arapahoe)](https://www.facebook.com/streetsoccerdenver). Sample set of weekly events: "MON 10/19: FREE coed session, open to all!…THU 10/22: FREE coed session, open to all!" [Main web site](https://www.streetsoccerusa.org/cities/denver/) is pretty spare, and no events.
+* Denver/City Park. Reputedly there are many spontaneous drop-in games here, and essentially all day Saturday.
 
 ## Venues
 
 * [Superior Sports Stable](http://www.sportstable.club/page/show/2072291-turf)
 * [Boulder Indoor Soccer](https://boulderindoorsoccer.com/)
 * [Westminster Indoor Soccer](https://goo.gl/maps/rhzZZGqiXb2nvaDB8)
+* [Street Soccer, Denver](https://www.streetsoccerusa.org/cities/denver/)
 * ~~[Simply Soccer](https://simplysoccer.co/)~~ - Site down
 * [Louisville Recreation Center "Turf Gym"](https://www.louisvilleco.gov/living-in-louisville/recreation-senior-center/programs-activities/turf-gym)
 
